@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Folly
-- 🪴 Pronouns: He/They
+- 🪴 Pronouns: They/He
 - 🔮 I’m interested in 3D modeling, design, and general whimsy
 - 💞️ I’m looking to collaborate on Game Model Design
 - 📮 How to reach me pelhaminddesign@gmail.com
